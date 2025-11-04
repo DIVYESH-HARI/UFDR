@@ -178,7 +178,7 @@ forensis-ai/
 
 **K.RAKSHITHASRI**  
 📧 rakshiekt@gmail.com  
-🔗 [github.com/rakshithasri-k](https://github.com/rakshithasri-k)
+🔗 [github.com/rakshithasri06](https://github.com/rakshithasri06)
 
 **VIJAYA KARTHICK RAJA U M**  
 📧 vkr3056@gmail.com  
